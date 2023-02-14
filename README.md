@@ -1,1 +1,1 @@
-# Mobile-App-Assignment_1
+Mini Group Project
